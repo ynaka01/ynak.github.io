@@ -1,1 +1,0 @@
-# ynak.github.io
